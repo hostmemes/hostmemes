@@ -1,7 +1,7 @@
 - づ⊂ Hi, I’m @hostmemes / Amଓer
 - ✧ I’m interested in computers
-- ✯ I’m currently learning about hacking 
-- ♡ I’m looking to collaborate on my r๑bl๑x game
+- ✯ I’m currently learning about hacking
+- ❥ still working on my r๑bl๑x game
 - ヘ nervous in bad grades
 
 <!---
